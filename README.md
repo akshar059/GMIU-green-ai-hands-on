@@ -1,0 +1,1 @@
+# GMIU-green-ai-hands-on
